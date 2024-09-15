@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FoxglovePurpur
 - 👀 I’m interested in ... dopamine rushes.
 - 🌱 I’m currently learning ... probably, I think. <3
-- 💞️ I’m looking to collaborate on ... nothing :) I work on CHOMPstation tho.
+- 💞️ I’m looking to collaborate on ... nothing :) I work on TORCHstation tho.
 - 📫 How to reach me ... you can't!
 
 <!---
